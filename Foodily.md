@@ -2,7 +2,7 @@ Privacy Policy for Foodily
 
 Effective Date: 9/19/2023
 
-This Privacy Policy describes how HorizonMyApps ("we," "us," or "our") collects, uses, and shares information in connection with your use of our educational app, Nihongo Sensei (the "App").
+This Privacy Policy describes how HorizonMyApps ("we," "us," or "our") collects, uses, and shares information in connection with your use of our educational app, Foodily (the "App").
 
 Information Collection and Use
 
